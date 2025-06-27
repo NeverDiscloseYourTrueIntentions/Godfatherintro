@@ -1,5 +1,6 @@
 ![Image](https://github.com/user-attachments/assets/c9f42a22-0318-4097-a695-57aef265f35c)
 ╭━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╮
+
 ₊⋆ ☾ ₊⋆ ☁︎ ━━━ ☁︎₊⋆ ☾ ₊⋆ 
 
 『 Call Me Skyler/Kester/ Carlos 』
@@ -37,4 +38,5 @@
 ![Image](https://github.com/user-attachments/assets/78d4b5d6-5adf-411b-95ab-563224069d0a)
 
 ₊⋆ ☾ ₊⋆ ☁︎ ━━━ ☁︎₊⋆ ☾ ₊⋆ 
+
 ╰━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╯
