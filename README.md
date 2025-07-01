@@ -20,6 +20,7 @@
 - ꒰১ ໒꒱✧  『 My Discord : whisperselfwardswan_survivor 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 Please interact with caution if you are 18+. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 My mom already passed away, so don't joke about my mom, please. 』 ✧ ꒰১ ໒꒱
+- ꒰১ ໒꒱✧  『 If you my oomf and using offline mode and want intreact with me, pls Whisper me since sometime i think people need time when they using offline mode. 』 ✧ ꒰১ ໒꒱
 
 # ✧ ꒰১ ໒꒱  『 Tag i used on Pony Town 』  ꒰১ ໒꒱ ✧
 - ꒰১ ໒꒱✧  『 Free2Intreact/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
