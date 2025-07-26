@@ -36,7 +36,7 @@
 
 # End Of Introduction 
 
-![Image](https://github.com/user-attachments/assets/78d4b5d6-5adf-411b-95ab-563224069d0a)
+
 
 
 
