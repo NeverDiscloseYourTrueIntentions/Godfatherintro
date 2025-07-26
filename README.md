@@ -33,7 +33,7 @@
 - ꒰১ ໒꒱✧  『 Offtab : It means I am not on Pony Town but on another app. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 AFK || Away From Keyboard : It means I do something in real life. 』 ✧ ꒰১ ໒꒱
 
-# <img width="25" height="25" alt="Image" src="https://github.com/user-attachments/assets/3465e2c7-d09a-4072-9c32-0dcd4dbd2705" /> End Of Introduction 
+# <img width="35" height="35" alt="Image" src="https://github.com/user-attachments/assets/3465e2c7-d09a-4072-9c32-0dcd4dbd2705" /> End Of Introduction 
 
 
 
