@@ -7,7 +7,7 @@
 
 『 She/Her 』
 
-# ━━━✶━━━『 Before You Intreact 』━━━✶━━━
+# ![Image](https://github.com/user-attachments/assets/05950888-ac1d-4352-b8cb-3ec2e8a26328)『 Before You Intreact 』
 
 - ꒰১ ໒꒱✧  『 My grammar was terrible. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 I always go Offtab, so I would appreciate it if you whispered to me. 』 ✧ ꒰১ ໒꒱
@@ -21,7 +21,7 @@
 - ꒰১ ໒꒱✧  『 My mom already passed away, so don't joke about my mom, please. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 If you my oomf and using offline mode and want intreact with me, pls Whisper me since sometime i think people need time when they using offline mode. 』 ✧ ꒰১ ໒꒱
 
-# ━━━✶━━━『 Tag i used on Pony Town 』 ━━━✶━━━
+# ![Image](https://github.com/user-attachments/assets/05950888-ac1d-4352-b8cb-3ec2e8a26328)『 Tag i used on Pony Town 』 
 - ꒰১ ໒꒱✧  『 Free2Intreact/Int : Please feel free to come and speak with me.』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 Free2C+H || Cuddle + Hiding : feel free to come and cuddle me. 』 ✧ ꒰১ ໒꒱
 - ꒰১ ໒꒱✧  『 W2I || Whisper to interact : Please interact with me by whispering. 』 ✧ ꒰১ ໒꒱
